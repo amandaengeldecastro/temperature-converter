@@ -1,0 +1,1 @@
+If you want to know about the four types of temperature scales, click [here](https://sciencing.com/countries-use-celsius-8077428.html).
